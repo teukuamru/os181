@@ -11,4 +11,6 @@ ZCZC W04 Week 04 is done!
 
 ZCZC W05 Week 05 oke
 
-ZCZC W06 Week 06 is donse
+ZCZC W06 Week 06 is done
+
+ZCZC W07 Week 07 okay!
