@@ -15,4 +15,4 @@ ZCZC W06 Week 06 is done
 
 ZCZC W07 Week 07 okay!
 
-ZCZC W07 Week 08 done
+ZCZC W08 Week 08 done
